@@ -1,2 +1,0 @@
-# hendrici.github.io
-portfolio
